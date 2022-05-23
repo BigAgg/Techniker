@@ -1,0 +1,1 @@
+# Techniker Aufgaben und Vorbereitung fuer die Abschlusspruefungen
